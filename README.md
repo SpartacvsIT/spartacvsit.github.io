@@ -1,1 +1,0 @@
-# spartacvsit.github.io
